@@ -1,1 +1,0 @@
-# blshackclub_template
